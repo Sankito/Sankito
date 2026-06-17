@@ -8,4 +8,6 @@ Because any difficulty is also an opportunity, life is a continuous learning cur
 
 -----
 
+In the jungle for the last decade, pretty sure i've learned something.
+
 Hobbies : Spreading positivity and love and peace.
